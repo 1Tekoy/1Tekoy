@@ -7,3 +7,4 @@ Meu contato para conversar🖐
 Discord: 1tekoy
 Email para contrato: 0000112105156xsp@gmail.com (Mesmo que ngm use isso)
 Meu Numero: 19996124457
+![Uploading plushtrap_jumpscare_by_crankyarcade_de1j19f-fullview.jpg…]()
